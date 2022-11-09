@@ -1,5 +1,5 @@
 gospodi pomogi...
-ya v rot ebala eti labi...
+
 
 <!---
 margo2000zorro/margo2000zorro is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
